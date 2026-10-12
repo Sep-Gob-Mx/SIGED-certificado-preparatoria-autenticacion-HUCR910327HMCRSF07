@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-HUCR910327HMCRSF07
+HUCR910327HMCRSF07
